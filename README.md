@@ -1,0 +1,2 @@
+# qovdzc
+research notes
